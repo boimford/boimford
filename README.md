@@ -4,7 +4,7 @@ I am a Boimler / Charles Calvin IRL and Prince Fluff Fictionkin
 <img width="2048" height="123" alt="tumblr_cfff47d58d7c8b4e28e393b7b545b9fe_c7155590_2048" src="https://github.com/user-attachments/assets/a67f7ca4-c529-4017-98a8-5a8e0ccc8487" />
 Boimford
 
-🌙 = Offtab/Watching stuff (currently watching: Star Trek Lower Decks)
+🌙 = Offtab/Watching stuff (currently watching:)
 
 ⛔ = busy/afk/not in a good mood
 
