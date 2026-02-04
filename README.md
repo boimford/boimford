@@ -12,6 +12,8 @@
 
 I am Rory, but you can call me Boims :33 
 
+
+
 **Info to know**
 
 ★ I am Bigender, and go by any pronouns including neos
@@ -30,7 +32,9 @@ I am Rory, but you can call me Boims :33
 **Status Meanings**
 
 🌙 : Offtab 
+
 ⛔ : Iwc / busy
+
 🟢 : Online (NO DUH.)
 
 Thaz all I think
@@ -44,6 +48,10 @@ Thaz all I think
 ![tumblr_15566b854548db95307d9fff3671135b_dc05dce3_250](https://github.com/user-attachments/assets/9bd3f588-b96a-4b4d-a650-70e1a0c08465)
 ![ezgif-3eeff619532f5abf](https://github.com/user-attachments/assets/a6728050-f9eb-4f59-8108-61ac9a55a79e)
 ![ezgif-2e812e9d2b2034e9](https://github.com/user-attachments/assets/b3875d01-384e-4bd4-8370-beb9d342cfdc)
+
+![ezgif-662d89e5bb1d0669](https://github.com/user-attachments/assets/eb649adb-240b-4dc0-abf2-dc5d8e03d8fb)
+<img width="99" height="56" alt="tumblr_a9008554c7b34c07b2188f7b2163c851_b779f684_100" src="https://github.com/user-attachments/assets/46f2663c-2cad-4d7e-9b93-c16ff6d8f673" />
+![tumblr_9b0238931307c254fd2bd123e84efbc6_8b5173b7_100](https://github.com/user-attachments/assets/f7ea843b-ccc7-4912-a3de-60c942289765)
 
 
 
