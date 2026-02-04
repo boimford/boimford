@@ -35,6 +35,15 @@ I am Rory, but you can call me Boims :33
 
 Thaz all I think
 <img width="1500" height="300" alt="tumblr_55ca0f1fc1b62f64495021aede9ff0b1_c637154b_2048" src="https://github.com/user-attachments/assets/e928c725-4756-461a-b98d-e863354eaedd" />
-![Uploading ezgif-2e812e9d2b2034e9.webp…]()
+![524629984-ccb1110c-e40f-44c7-8890-61cbe330d197](https://github.com/user-attachments/assets/17d87720-37f7-4056-91ef-933a97b27719)
+![524627248-24dc49ae-b44d-4a43-bd20-a50ae0dcb0be](https://github.com/user-attachments/assets/985c23b2-764f-4186-ae0c-724592b9a1e3)
+![524633324-62d5e731-20d7-4d26-b2f4-e167fe4b279f](https://github.com/user-attachments/assets/2be28d60-1aa4-42e3-b366-138e267c7983)
+![ezgif-488c3d33c2cadb9a](https://github.com/user-attachments/assets/860057f3-66b1-4392-9bca-654db33df3e5)
+![6d42cd94-143f-49f9-82be-82932f3d2d89](https://github.com/user-attachments/assets/aad831d6-cb5a-411b-916f-8d9b5d2abf64)
+![tumblr_e899639281a17c35536dd228d5780f4d_7f36c52a_250](https://github.com/user-attachments/assets/e050fa1a-66cf-488a-bc06-4472cb231eaf)
+![tumblr_15566b854548db95307d9fff3671135b_dc05dce3_250](https://github.com/user-attachments/assets/9bd3f588-b96a-4b4d-a650-70e1a0c08465)
+![ezgif-3eeff619532f5abf](https://github.com/user-attachments/assets/a6728050-f9eb-4f59-8108-61ac9a55a79e)
+![ezgif-2e812e9d2b2034e9](https://github.com/user-attachments/assets/b3875d01-384e-4bd4-8370-beb9d342cfdc)
+
 
 
