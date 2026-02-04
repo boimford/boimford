@@ -25,6 +25,16 @@ I am Rory, but you can call me Boims :33
 ★ I am above 13 but below 26, that's all i will tell you
 
 ☆ I've been playing pony town for almost 3 years!
+<img width="640" height="26" alt="tumblr_4aab8bfc3b389a17c1de538d0dac3788_860a9e11_640" src="https://github.com/user-attachments/assets/c4130945-6f85-4c2f-84b4-e06ff4bb7175" />
 
+**Status Meanings**
+
+🌙 : Offtab 
+⛔ : Iwc / busy
+🟢 : Online (NO DUH.)
+
+Thaz all I think
+<img width="1500" height="300" alt="tumblr_55ca0f1fc1b62f64495021aede9ff0b1_c637154b_2048" src="https://github.com/user-attachments/assets/e928c725-4756-461a-b98d-e863354eaedd" />
+![Uploading ezgif-2e812e9d2b2034e9.webp…]()
 
 
