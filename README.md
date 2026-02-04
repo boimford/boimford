@@ -38,6 +38,8 @@ I am Rory, but you can call me Boims :33
 🟢 : Online (NO DUH.)
 
 Thaz all I think
+
+I <3 Wido
 <img width="1500" height="300" alt="tumblr_55ca0f1fc1b62f64495021aede9ff0b1_c637154b_2048" src="https://github.com/user-attachments/assets/e928c725-4756-461a-b98d-e863354eaedd" />
 ![524629984-ccb1110c-e40f-44c7-8890-61cbe330d197](https://github.com/user-attachments/assets/17d87720-37f7-4056-91ef-933a97b27719)
 ![524627248-24dc49ae-b44d-4a43-bd20-a50ae0dcb0be](https://github.com/user-attachments/assets/985c23b2-764f-4186-ae0c-724592b9a1e3)
