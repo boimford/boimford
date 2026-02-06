@@ -50,6 +50,8 @@ I <3 Wido
 ![tumblr_15566b854548db95307d9fff3671135b_dc05dce3_250](https://github.com/user-attachments/assets/9bd3f588-b96a-4b4d-a650-70e1a0c08465)
 ![ezgif-3eeff619532f5abf](https://github.com/user-attachments/assets/a6728050-f9eb-4f59-8108-61ac9a55a79e)
 ![ezgif-2e812e9d2b2034e9](https://github.com/user-attachments/assets/b3875d01-384e-4bd4-8370-beb9d342cfdc)
+![tumblr_30d77b9ca0e21842b3070d3b02e44896_7a4ff1fd_250 gif](https://github.com/user-attachments/assets/b14e3002-1dd2-4b9f-a69c-f669477e3898)
+![0050-capricorn](https://github.com/user-attachments/assets/818631e4-a9d3-4e2f-be5c-abf1fa4be413)
 
 ![ezgif-662d89e5bb1d0669](https://github.com/user-attachments/assets/eb649adb-240b-4dc0-abf2-dc5d8e03d8fb)
 <img width="99" height="56" alt="tumblr_a9008554c7b34c07b2188f7b2163c851_b779f684_100" src="https://github.com/user-attachments/assets/46f2663c-2cad-4d7e-9b93-c16ff6d8f673" />
