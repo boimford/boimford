@@ -10,7 +10,7 @@
 [ Hamha! ]
 
 
-I am Rory, but you can call me Boims :33 
+I am Ham, but you can call me Boims :33 
 
 
 
